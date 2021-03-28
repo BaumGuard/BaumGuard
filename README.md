@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BaumGuard
+- 👋 Hi, I’m Jonas aka @BaumGuard, Born in 2002
 - 👀 I’m interested in science, technology, ham radio, weather satellite reception, music and video production, poetry, hiking, skiing
 - 🌱 I’m currently attending Gymnasium Füssen
 
